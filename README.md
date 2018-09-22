@@ -1,0 +1,2 @@
+# Newrising-
+begin to hacking 
